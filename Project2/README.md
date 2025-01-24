@@ -1,3 +1,0 @@
-# practicum
-
-## Title 2
